@@ -1,0 +1,2 @@
+# Shea-Body-Butter
+Shea butter is all the beauty rage right now, but it can be confusing shifting through which shea butter product is the best and most natural.  Are you really getting 100% natural shea butter, or are there hidden radicals and chemicals lurking in your shea butter?  What does it mean if shea butter is refined? Is that better than natural shea butter or the same? To get the most from shea butter products out there, know the ins and outs to make you an unrefined/refined shea butter expert. Click Here: http://www.sheabodiesbutter.com/shea-butter-for-face/
